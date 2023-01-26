@@ -1,7 +1,7 @@
 # 9FaktaPursuitOfHappyness
 9 Fakta Menarik Film The Pursuit Of Happyness
 
-Pernah dengar film The Pursuit of Happyness? Film yang bisa kamu nikmati di situs nonton film gratis BIOSKOPMERAH ini merupakan Film Amerika tentang seorang ayah tunggal yang mencoba berkarier dan membesarkan anak satu satunya.
+Pernah dengar film The Pursuit of Happyness? Film yang bisa kamu nikmati di situs nonton film gratis BIOSKOPMERAH ini merupakan Film Amerika tentang seorang ayah tunggal yang mencoba berkarier dan membesarkan anak satu satunya. www.bioskopmerah.com
 
 Will Smith dan putranya Jaden Smith berperan sebagai pemeran utama. Respons yang diterima film ini pun tidak main-main karena banyak reaksi positif dari pakar film internasional. Lantas apa saja fakta unik yang membuat film ini begitu banyak disukai ? Mari kita simak 9 Fakta menarik film The Pursuit Of Happyness versi BIOSKOPMERAH
 
